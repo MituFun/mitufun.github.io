@@ -1,2 +1,1 @@
-i have nothing to say, but thank you [html5up](https://html5up.net/).
-
+由 MituFun 和他的好朋友一块建立的我的世界服务器官网 XD
